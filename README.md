@@ -3,7 +3,7 @@
 </p>
 <div align="center">
 
-# RapeSenpai
+#RapeSenp抚抚前辈
 **艾雅法拉**
 </div>
 
